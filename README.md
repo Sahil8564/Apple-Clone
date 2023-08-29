@@ -7,3 +7,8 @@ TECH USED ||
 
 ![Screenshot 2023-08-29 183538](https://github.com/Sahil8564/Apple-Clone/assets/136605579/df0d0170-1d9c-46dd-a67e-cd1b77fe1488)
 
+![Screenshot 2023-08-29 183607](https://github.com/Sahil8564/Apple-Clone/assets/136605579/9637a722-7ddd-43aa-8436-dbe524c3631d)
+
+
+
+
